@@ -7,6 +7,6 @@
 
 Цитирование:
 ***
-___
+
 ### Foot and ankle ability measure Russian version
 
